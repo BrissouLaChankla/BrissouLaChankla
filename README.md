@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://cv.brice-eliasse.com](https://cv.brice-eliasse.com)
 
-- ⚡ Fun fact **I think I am funny sometimes**
+- ⚡ I am funny **sometimes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
